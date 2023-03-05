@@ -1,4 +1,4 @@
-## Olá! EU Sou o THIAGO GANDRA 🖐️
+## Olá! EU Sou o THIAGO GANDRA 🖐🏽
 
 [![instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://instagram.com/Mlk_gandra)
 
